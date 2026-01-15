@@ -1,4 +1,4 @@
-## Hi! I am Mulberror 👋
+## Hi! I am Mulberry 👋
 This name is the fusion of mulberry and error. 
 
 My Chinese name sounds very similar to mulberry in Chinese pronunciation, and Isla(Error) is one of my favourite acg character.
